@@ -2,7 +2,7 @@
 
 *"The topper has many things to loose but a failure has an universe to acheive".*
 
-If you find that code relatable then - 
+If you find that quote relatable then - 
 - lets start Building👷‍♂️ and learning📚 together.
 - Pull me a request😉 and i'll pull it to you🤗.
 - Let projects connect us🤞.
